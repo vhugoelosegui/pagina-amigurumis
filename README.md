@@ -1,3 +1,2 @@
 # pagina-amigurumis
-respaldo de la pagina 
-udsbujl
+respaldo de la pagina STICKY NAVIGATION
